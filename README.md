@@ -1,1 +1,1 @@
-# baklavava.github.io
+# eurdle.github.io
